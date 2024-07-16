@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @Manjot5698
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me E-mail:mr.manjotsingh5698@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: ...
+
+
